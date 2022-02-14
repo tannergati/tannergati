@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @tannergati
+- 👀 I’m interested in ... Anime, Blockchain, Music, Video Games, Crypto Mining, etc
+- 🌱 I’m currently learning ... How to Code
+- 💞️ I’m looking to collaborate on ... Any projects :) Especially blockchain
+- 📫 How to reach me ... Mr.TannerG@gmail.com or @YungGati on twitter :)
